@@ -4,7 +4,7 @@
 
 [张鹏](https://baike.baidu.com/item/%E5%BC%A0%E9%B9%8F/20421783)，男，理学博士、教授、博士生导师（生态学、社会学方向）、中共党员。兼任国际自然保护联盟（IUCN）物种生存委员会委员，中国动物学会兽类学分会理事、广东省动物学会理事、International Journal of Primatology客座编辑、《兽类学报》、《人类学学报》编委。2017年4月，入选教育部2016年度“长江学者奖励计划”青年学者。
 
-导师评价网信息：[张鹏（人类学）https://mysupervisor.org/viewtopic.php?t=47897&sid=61521deda30b6eb96b106739cbcbefd0)
+导师评价网信息：[张鹏（人类学）](https://mysupervisor.org/viewtopic.php?t=47897&sid=61521deda30b6eb96b106739cbcbefd0)
 
 ![张鹏](https://i.loli.net/2018/07/09/5b436c0ec10f2.jpg)
 
