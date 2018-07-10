@@ -45,7 +45,7 @@
 
 5月至6月，当事人、参与十大提案的学生及“反性骚扰小组”的成员多次被学院及学校行政老师约谈。
 
-根据微信订阅号「向湾硚」提供的信息，公开了[《关于中山大学师风师德规范细则的建议》提案文件]https://github.com/Terminus2049/Univ-Teachers-Sexal-Harassment-News/blob/master/%E5%85%B3%E4%BA%8E%E4%B8%AD%E5%B1%B1%E5%A4%A7%E5%AD%A6%E5%B8%88%E9%A3%8E%E5%B8%88%E5%BE%B7%E8%A7%84%E8%8C%83%E7%BB%86%E5%88%99%E7%9A%84%E5%BB%BA%E8%AE%AE.pdf)。（给该公号回复「机制」可得到文件）
+根据微信订阅号「向湾硚」提供的信息，公开了[《关于中山大学师风师德规范细则的建议》提案文件](https://github.com/Terminus2049/Univ-Teachers-Sexal-Harassment-News/blob/master/%E5%85%B3%E4%BA%8E%E4%B8%AD%E5%B1%B1%E5%A4%A7%E5%AD%A6%E5%B8%88%E9%A3%8E%E5%B8%88%E5%BE%B7%E8%A7%84%E8%8C%83%E7%BB%86%E5%88%99%E7%9A%84%E5%BB%BA%E8%AE%AE.pdf)。（给该公号回复「机制」可得到文件）
 
 直至6月28日，距当事人的联合举报已过去将近2个月，参与举报的当事人之一被中大纪委告知调查取证阶段已结束，将开始讨论对张鹏行为的处理方式。在被纪委约谈的第二天，当事人被学院书记问及是否接受了媒体采访。
 
