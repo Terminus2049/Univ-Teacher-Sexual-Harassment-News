@@ -43,7 +43,7 @@
 
 4 月 28 日，微信公号向湾硚收到匿名举报，推送文章[田野里的“叫兽”](https://terminus2049.github.io/archive/2018/04/28/Zhong-Da-anthropology.html)
 
-7 月 8 日，网易新闻「人间」栏目报道：[她曾以为自己能逃开教授的手丨人间](https://zhuanlan.zhihu.com/p/39321602)
+7 月 8 日，网易新闻「人间」栏目报道：[她曾以为自己能逃开教授的手丨人间](https://zhuanlan.zhihu.com/p/39321602)，该文章在微信平台多次转载被删除。7 月 9 日，作者将原文发布在基于区块链技术搭建的写作平台 [Matters Lab](https://matters.news/forum/?post=51ca76a3-8ddf-4474-82e7-97f0c75d17fa)。
 
 新京报评论：[博导被举报性骚扰，中山大学别沉默](https://mp.weixin.qq.com/s/4bezvNxF20NxgcONDvhR_g)
 
@@ -51,6 +51,11 @@
 
 [中大张鹏事件：网文与学校调查核实情况不相符吗？（附事件发展时间轴）](https://www.jianshu.com/p/e0b65061af35)
 
-多名中大校友自发组织发布《[中大，请务必直面校园性骚扰|中大学子致母校](https://www.jianshu.com/p/6b6a8cc6b8f3)》及《[驱张鹏书](http://archive.is/4UQPT)》两封倡议信，请求中大对事件进行调查、处理并建立防范性骚扰的机制。
+多名中大校友自发组织发布《[中大，请务必直面校园性骚扰|中大学子致母校](https://www.jianshu.com/p/6b6a8cc6b8f3)》及《[驱张鹏书（附最新名单）](https://weibo.com/ttarticle/p/show?id=2309404260000833912315)》两封联署倡议信，请求中大对事件进行调查、处理并建立防范性骚扰的机制。
 
 「新媒体女性」发表评论：[中大人类学教授张鹏被曝长期性骚扰学生 校方回应惹争议](http://gzxmtnx.com/news/2018-07-09-2b66b023eaf75078.html)
+
+7 月 10 日，中山大学人类系反性骚扰小组发布文章「[七问七答：中大反性骚扰小组回应张鹏事件](https://www.jianshu.com/p/8d4dba2b6ce3)」，回应媒体、网友的讨论。
+
+7 月 10 日，中国新闻周刊报道了对举报人之一的采访：[对话中大教授性骚扰受害女生：他说抱女生是在“称猴”](https://mp.weixin.qq.com/s/xBI__4C-YTFip-Ngbx2GnA)
+
