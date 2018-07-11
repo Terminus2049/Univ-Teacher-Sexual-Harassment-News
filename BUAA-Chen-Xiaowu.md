@@ -27,4 +27,4 @@
 - [北航教师陈小武因师德师风问题被举报，学校调查并将其停职](https://www.thepaper.cn/newsDetail_forward_1930898)
 - [被举报“性骚扰女学生”，北航教授回应：没做过违法乱纪的事](https://www.thepaper.cn/newsDetail_forward_1931131)
 - [扳倒北航“长江学者”陈小武的女性们](http://gy.qq.com/original/guyu_lab/lab075.html)
-- 迟到的“Me too”：北航事件打破“学术性骚扰”集体沉默](http://m.lifeweek.com.cn/h5/article/detail.do?artId=9784)
+- [迟到的“Me too”：北航事件打破“学术性骚扰”集体沉默](http://m.lifeweek.com.cn/h5/article/detail.do?artId=9784)
